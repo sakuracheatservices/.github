@@ -1,5 +1,6 @@
 # Sakuracheats.com
 ![mascot](https://wallpapers.com/images/hd/sakura-miku-hgihx7qlo4oocpyf.jpg)
+# 
 Premium gaming solutions delivering unmatched performance and cutting-edge features for competitive players.
 
 ## About
